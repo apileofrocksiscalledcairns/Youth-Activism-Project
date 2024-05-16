@@ -41,3 +41,13 @@ This repo shares the spreadsheet made by Amina Hossein titled ‘is your fav aut
 
 - [youthactivismproject website, archive.org](https://web.archive.org/web/20240422063222/https://www.youthactivismproject.org/)
 - [youthactivismproject.org, ghostarchive](https://ghostarchive.org/archive/uah7I)
+
+
+## In The News:
+
+- [‘Is your fav author a zionist???’ A viral list reignites antisemitism fears in the literary world.](https://forward.com/fast-forward/611890/is-your-fav-author-a-zionist-a-viral-list-reignites-antisemitism-fears-in-the-literary-world)
+- [‘Is your fav author a zionist?’: Viral list sparks antisemitism fears among authors](https://www.timesofisrael.com/is-your-fav-author-a-zionist-viral-list-sparks-antisemitism-fears-among-authors/)
+- [Open letter to the creator of the ‘Is your fav author a zionist?’ list](https://milpitasbeat.com/open-letter-to-the-creator-of-the-is-your-fav-author-a-zionist-list/)
+- [Viral list classifies authors as Zionist, urging people not to read their work](https://forward.com/culture/611728/authors-zionist-pro-palestine-list/)
+- [The Insane Anti-Jewish Literary Blacklist](https://www.commentary.org/seth-mandel/the-insane-anti-jewish-literary-blacklist/)
+- [JTA: ‘Is your fav author a zionist???’ A viral list reignites antisemitism fears in the literary world.](https://www.jta.org/2024/05/09/israel/is-your-fav-author-a-zionist-a-viral-list-reignites-antisemitism-fears-in-the-literary-world)
